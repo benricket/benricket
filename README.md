@@ -1,0 +1,1 @@
+- Hi, I'm Ben. I'm currently a high school student looking to apply to college.
