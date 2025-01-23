@@ -1,1 +1,1 @@
-- Hi, I'm Ben. I'm currently a high school student looking to apply to college.
+- Hi, I'm Ben. I'm currently a student at Olin College of Engineering.
